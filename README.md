@@ -1,4 +1,6 @@
-# Website currently under construction (build began November 2024, in the meantime you can check out [christopherblackford.wordpress.com](christopherblackford.wordpress.com)
+# Website currently under construction (build began November 2024, in the meantime you can check out [christopherblackford.wordpress.com](https://christopherblackford.wordpress.com)
+
+Hi cutie bean :)))))
 
 ## Welcome!
 
